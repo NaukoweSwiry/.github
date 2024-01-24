@@ -1,1 +1,1 @@
-[DON'T CLICK THIS!!!!!!!](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+[DON'T CLICK THIS!!!!!!!](https://youtu.be/dQw4w9WgXcQ?autoplay=1)
